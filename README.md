@@ -13,3 +13,5 @@
 █▀█ █▀█ █▀█ █▀█ █▀█ █▀█ █▀█
 █▄█ █▄█ █▄█ █▄█ █▄█ █▄█ █▄█
 
+![](https://github.com/Mizugi-Kanojo/Mizugi-Kanojo/blob/92a3d0f2b8beaae9e88d168477641768261d82eb/28634555.webp)
+
