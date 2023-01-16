@@ -4,7 +4,7 @@
 
 █▄█ █▄█ █▄█ █▄█ █▄█ █▄█ █▄█
 
-![](https://github.com/Mizugi-Kanoj/Hentai/blob/main/3da4228a2d7be6deef6a241ea176f82c.gif)
+![](https://github.com/Mizugi-Kanojo/Mizugi-Kanojo/blob/main/3da4228a2d7be6deef6a241ea176f82c.gif)
 
 █▀█ █▀█ █▀█ █▀█ █▀█ █▀█ █▀█
 
